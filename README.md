@@ -1,4 +1,5 @@
-# Neuroplasticity: How to Rewire the Brain
+
+# 🧠 Neuroplasticity: How to Rewire the Brain 🚀
 
 ### *Neuroplasticity*
 
